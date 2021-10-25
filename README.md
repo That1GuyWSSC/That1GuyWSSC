@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @That1GuyWSSC
 - 👀 I’m interested in cybersecurity
-- 🌱 I’m currently learning tudo
+- 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me twitter same handle 
 
